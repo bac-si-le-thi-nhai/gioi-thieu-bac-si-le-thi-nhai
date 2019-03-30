@@ -1,2 +1,6 @@
 # gioi-thieu-bac-si-le-thi-nhai
-Phòng khám đa khoa Thái Hà là một trong các địa điểm khám điều trị bệnh uy tín, chất lượng tại Hà Nội
+Phòng khám đa khoa Thái Hà là một trong các địa điểm khám điều trị bệnh uy tín, chất lượng tại Hà Nội. Đã trải qua nhiều năm chất lượng của phòng khám ngày càng được nâng cao qua từng ngày để đáp ứng lượng người bệnh tới với trung tâm y tế và đã dành được sự tin tưởng của người bệnh trên địa bàn Hà Nội và các tỉnh thành khác trên cả nước.
+
+Phòng khám Thái Hà đáp ứng được đầy đủ tiêu chí của một trung tâm y tế chất lượng, trung tâm y tế hội tụ những người bác sĩ chuyên khoa có chuyên môn cao, giàu kinh nghiệm, thiết bị máy móc y tế tiên tiến, cơ sở khang trang, sạch sẽ, chất lượng dịch vụ tốt và có giá thành khám chữa bệnh hợp lý.
+
+BS. lê thị nhài hiện đang làm việc tại chuyên khoa sản phụ khoa và phá thai tại phòng khám đa khoa Thái Hà. Bác Sĩ đã có nhiều đóng góp cho sự phát triển của phòng khám và bệnh nhân. https://www.linkedin.com/in/le-thi-nhai https://www.facebook.com/nhai.lethi.75033 https://twitter.com/bacsilethinhai https://about.me/bacsilethinhai https://www.reddit.com/user/bacsilethinhai https://trello.com/bacsilethinhai https://www.youtube.com/channel/UCgbW-Wum-iH3HLy-yus3TBw/about https://bacsilethinhai.tumblr.com/ https://bacsilethinhai.webflow.io
